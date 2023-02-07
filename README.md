@@ -7,4 +7,3 @@ i change this in other2
 这是什么情况啊怎么回这样子啊
 
 this 123
-你说这奇怪不奇怪 我靠
